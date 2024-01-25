@@ -6,3 +6,5 @@
 ![image](https://y2k.neocities.org/blinkiez/newbatch/Blinkie_116__site_.gif) 
 ![image](https://y2k.neocities.org/stamps/nekojiru_stamp_01_by_tapu_lele-daqtn5u.gif) 
 ![image](https://y2k.neocities.org/stamps/tumblr_inline_pe6lbw4Zzw1v11djx_1280.gif)
+> [!CAUTIOn]
+> i love rengoku sm
