@@ -10,4 +10,4 @@
 > i love rengoku sm
 
 > [!TIP]
-> song recommendation for you: __Frou Frou - Let Go__
+> song recommendation for you: __Let Go - Frou Frou__
