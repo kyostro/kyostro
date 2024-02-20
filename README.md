@@ -5,5 +5,3 @@
 > [!NOTE]
 > its me and rengoku against the world
 
-> [!TIP]
-> song recommendation for you: __Halfcrazy - Musiq Soulchild__
