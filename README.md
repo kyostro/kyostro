@@ -1,4 +1,4 @@
-![https://github.com/kyostro/kyostro/assets/130516145/4973d5e7-c96a-4f98-8778-029f3ed64138](https://www5.lunapic.com/editor/working/171141473254054115?3846219266)
+![https://github.com/kyostro/kyostro/assets/130516145/4973d5e7-c96a-4f98-8778-029f3ed64138](https://www5.lunapic.com/do-not-link-here-use-hosting-instead/171141473254054115?92089430982)
 > set your heart ablaze !
 > > don't forget to drink water and hydrate yourself today !
 > > > hold your head up high !
