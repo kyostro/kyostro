@@ -9,7 +9,7 @@
 
   </p> 
 <p align="center">
-  <sub> a͟s͟t͟r͟o͟ ‎ ‎ ✦ ‎  k͟y͟o͟ </sub></sub>
+  <sub> a͟s͟t͟r͟o͟‎ ‎ ✦‎ ‎ k͟y͟o͟ </sub></sub>
 <p align="center">
 
 
