@@ -9,7 +9,7 @@
 
   </p> 
 <p align="center">
-<sub> $${\color{orange}astro‎‎ ‎ ‎ ‎ ‎ ‎ - ‎ ‎ ‎ ‎ kyo}$$ </sub></sub> ‎ ‎
+<sub> astro — kyo </sub></sub> ‎ ‎
 <p align="center">
 <a href="https://kyodraw.straw.page/"> <sup> draw me smthn :] </sup>
 
