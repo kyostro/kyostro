@@ -4,16 +4,13 @@
 <a href="https://x.com/barefacelino/status/1791041334683255200">
   <sup>from the river to the sea , palestine will be free 🍉</sup>
 <p align="center">
-
-  <p align="center">
-  
-<a href="https://spaciebabie.tumblr.com/post/676824449852571648/gty-rena-chasing-the-sun">
-<img src="https://i.imgur.com/8nV3zkl.png" />
-
-
-</p>
-
-  </p> 
+<a href="https://x.com/barefacelino/status/1791041334683255200"> 
+<img src="https://i.imgur.com/sUYKA68.jpeg" />
+<a href="https://rentry.co/kyostro">
+<img src="https://i.imgur.com/kXCM54o.jpeg" />
+  <a href="https://kyodraw.straw.page/">
+<img src="https://i.imgur.com/zPES9TQ.jpeg" />
+  </p>  ‎
 <p align="center">
 <sub> astro — kyo </sub></sub> ‎ ‎
 <p align="center">
