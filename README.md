@@ -3,8 +3,7 @@
 <p align="center">
   <sup>from the river to the sea , palestine will be free 🍉</sup>
 <p align="center">
-<sub> astro — kyo </sub></sub> ‎ ‎
-<p align="center">
+
 
 <a href="https://x.com/barefacelino/status/1791041334683255200"> 
 <img src="https://i.imgur.com/sUYKA68.jpeg" />
