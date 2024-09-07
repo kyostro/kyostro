@@ -8,4 +8,4 @@
  <p align="center"> 
 
 
-‎ ‎ ‎ ‎ <sup>[rentry](https://rentry.co/kyostro) ‎ ‎‎  ☼ ‎ ‎ [strawpage](https://kyodraw.straw.page/) ‎ ‎‎  ☼ ‎ ‎ [links for palestine](https://x.com/barefacelino/status/1791041334683255200)
+‎ ‎ ‎ ‎ <sup>[rentry](https://rentry.co/kyostro) ‎ ‎‎  ┆ ‎ ‎ [strawpage](https://kyodraw.straw.page/) ‎ ‎‎  ┆ ‎ ‎ [links for palestine](https://x.com/barefacelino/status/1791041334683255200)
