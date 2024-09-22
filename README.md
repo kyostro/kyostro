@@ -9,4 +9,4 @@
 
 
 ‎ ‎ ‎ ‎ 
-<sup>[rentry](https://rentry.co/kyostro) ‎ ‎‎  ﹟ ‎ ‎ [strawpage](https://kyodraw.straw.page/) ‎ ‎‎  ﹟ ‎ ‎ [links for palestine](https://x.com/l0veol0gy5/status/1788378594806272129)
+<sup>[rentry](https://rentry.co/kyostro) ‎ ‎‎  ⦂ ‎ ‎ [strawpage](https://kyodraw.straw.page/) ‎ ‎‎  ⦂ ‎ ‎ [links for palestine](https://x.com/l0veol0gy5/status/1788378594806272129)
