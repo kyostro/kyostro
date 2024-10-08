@@ -10,5 +10,5 @@
 
 
 ‎ ‎ ‎ ‎ 
- <sup>[rentry](https://rentry.co/kyostro) ‎ ‎‎ 𓈒 ‎‎ ‎‎ [strawpage](https://kyodraw.straw.page/) ‎ ‎‎ 𓈒 ‎‎ ‎‎ [atabook](https://kyostro.atabook.org/) ‎ ‎‎ 𓈒 ‎‎ ‎‎  [links for palestine](https://x.com/l0veol0gy5/status/1788378594806272129)
+ <sup>[rentry](https://rentry.co/kyostro) ‎ ‎‎ ﹒ ‎‎ ‎‎ [strawpage](https://kyodraw.straw.page/) ‎ ‎‎ ﹒ ‎‎ ‎‎ [atabook](https://kyostro.atabook.org/) ‎ ‎‎ ﹒ ‎‎ ‎‎  [links for palestine](https://x.com/l0veol0gy5/status/1788378594806272129)
 
