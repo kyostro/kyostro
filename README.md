@@ -5,7 +5,7 @@
   <p align="center"> 
 
 <a href= "https://josyuss.tumblr.com/post/688800137651339264/beautiful" />
-<img src="https://i.imgur.com/V5PTUp8.png" width="420" height="400" />
+<img src="https://i.imgur.com/V5PTUp8.png"  />
 
  <p align="center"> 
 
