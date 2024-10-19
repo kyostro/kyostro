@@ -4,14 +4,13 @@
 <p align="center">
   <p align="center"> 
 
-<a href= "https://josyuss.tumblr.com/post/688800137651339264/beautiful" />
-<img src="https://i.imgur.com/V5PTUp8.png" width="400" height="400" />
+<img src="https://i.imgur.com/dgy96Qz.png" width="350" height="250" />
 
  <p align="center"> 
 
 
 ‎ ‎ ‎ ‎ 
- <sup>[rentry](https://rentry.co/kyostro) ‎ ‎‎ ﹒ ‎‎ ‎‎ [strawpage](https://kyodraw.straw.page/) ‎ ‎‎ ﹒ ‎‎ ‎‎ [atabook](https://kyostro.atabook.org/) ‎ ‎‎ ﹒ ‎‎ ‎‎  [links for palestine](https://x.com/l0veol0gy5/status/1788378594806272129)
+[rentry](https://rentry.co/kyostro) ‎ ‎‎ ﹒ ‎‎ ‎‎ [strawpage](https://kyodraw.straw.page/) ‎ ‎‎ ﹒ ‎‎ ‎‎ [atabook](https://kyostro.atabook.org/) ‎ ‎‎ ﹒ ‎‎ ‎‎  [links for palestine](https://x.com/l0veol0gy5/status/1788378594806272129)
  <p align="center">
  <img src="https://neospring.org/api/util/ext/image?img=https://files.catbox.moe/herd2z.gif" /> <img src="https://neospring.org/api/util/ext/image?img=https://files.catbox.moe/ystne0.gif" /> <img src="https://neospring.org/api/util/ext/image?img=https://files.catbox.moe/8uu0bc.gif" /> <img src="https://neospring.org/api/util/ext/image?img=https://files.catbox.moe/nxpbf7.gif" />
 
