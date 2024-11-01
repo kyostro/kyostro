@@ -4,7 +4,7 @@
 <p align="center">
   <p align="center"> 
 
-<img src="https://i.imgur.com/qVv3XAO.jpeg" width="300" height="350"  />
+<img src="https://files.catbox.moe/v7j0g7.png" width="300" height="350"  />
 
  <p align="center"> 
 
