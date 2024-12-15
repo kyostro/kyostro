@@ -3,7 +3,7 @@
   <p align="center">
   <p align="center"> 
 
-[<img src="https://i.imgur.com/VJyvmcb.png" width="480" height="250">](https://x.com/l0veol0gy5/status/1788378594806272129)
-[<img src="https://i.imgur.com/xvCk71p.jpeg" width="480" height="250">](https://rentry.co/kyostro)
-[<img src="https://i.imgur.com/36Pdu2D.jpeg" width="480" height="250">](https://kyostro.atabook.org/)
-[<img src="https://i.imgur.com/UgDW7M0.jpeg" width="480" height="250">](https://kyodraw.straw.page/)
+[<img src="https://i.imgur.com/VJyvmcb.png">](https://x.com/l0veol0gy5/status/1788378594806272129)
+[<img src="https://i.imgur.com/xvCk71p.jpeg">](https://rentry.co/kyostro)
+[<img src="https://i.imgur.com/36Pdu2D.jpeg">](https://kyostro.atabook.org/)
+[<img src="https://i.imgur.com/UgDW7M0.jpeg">](https://kyodraw.straw.page/)
