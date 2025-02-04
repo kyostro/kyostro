@@ -5,7 +5,7 @@
 <p align="center">
 <p align="center"> 
 
-<img src="https://i.imgur.com/TFEn3zT.png" width="450" height="400" />
+<img src="https://i.imgur.com/Doe5OPp.png" />
 <p align="center"> 
  ‎ ‎ ‎ ‎isfp-t 6w5 ‎ ‎ ‎ ‎ ‎ ‎ ‎  fem/neu terms ‎ ‎ ‎ ‎ ‎ ‎ ‎  kyojuro yume
 
