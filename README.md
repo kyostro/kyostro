@@ -7,6 +7,6 @@
 
 <img src="https://i.imgur.com/Doe5OPp.png" />
 <p align="center"> 
-$\textsf{\color{#e47014}{isfp-t}}$ ‎ ‎ ‎ ‎ ‎ ‎ ‎   $\textsf{\color{#d96303}{fem/neu terms}}$  ‎ ‎ ‎ ‎ ‎ ‎ ‎   $\textsf{\color{#b44414}{kyojuro yume}}$  ‎ ‎ ‎ 
+$\textsf{\color{#e47014}{isfp-t 6w5}}$ ‎ ‎ ‎ ‎ ‎ ‎ ‎   $\textsf{\color{#d96303}{fem/neu terms}}$  ‎ ‎ ‎ ‎ ‎ ‎ ‎   $\textsf{\color{#b44414}{kyojuro yume}}$  ‎ ‎ ‎ 
 
   ##### ‎‎[rentry](https://rentry.co/kyojuro-rengoku) ‎ ‎‎  ‎‎ ‎‎ [strawpage](https://kyodraw.straw.page/) ‎ ‎‎  ‎‎ ‎‎ [atabook](https://kyostro.atabook.org/)
