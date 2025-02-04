@@ -7,6 +7,6 @@
 
 <img src="https://i.imgur.com/Doe5OPp.png" />
 <p align="center"> 
-<img src="https://i.postimg.cc/prFtRNN2/57-B4-F009-6-F14-42-FD-88-DA-D53-C38-F9-FB5-C.gif" /> ‎ ‎ ‎ $\textsf{\color{#e47014}{isfp-t}}$ ‎ ‎ ‎ ‎ ‎ ‎ ‎   $\textsf{\color{#d96303}{fem/neu terms}}$  ‎ ‎ ‎ ‎ ‎ ‎ ‎   $\textsf{\color{#b44414}{kyojuro yume}}$  ‎ ‎ ‎ ‎<img src="https://i.postimg.cc/prFtRNN2/57-B4-F009-6-F14-42-FD-88-DA-D53-C38-F9-FB5-C.gif" />
+$\textsf{\color{#e47014}{isfp-t}}$ ‎ ‎ ‎ ‎ ‎ ‎ ‎   $\textsf{\color{#d96303}{fem/neu terms}}$  ‎ ‎ ‎ ‎ ‎ ‎ ‎   $\textsf{\color{#b44414}{kyojuro yume}}$  ‎ ‎ ‎ 
 
   ##### ‎‎[rentry](https://rentry.co/kyojuro-rengoku) ‎ ‎‎  ‎‎ ‎‎ [strawpage](https://kyodraw.straw.page/) ‎ ‎‎  ‎‎ ‎‎ [atabook](https://kyostro.atabook.org/)
