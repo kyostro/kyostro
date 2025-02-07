@@ -11,3 +11,5 @@
 $\textsf{\color{#bc5f4c}{i like kyojuro}}$
 
   ##### ‎‎[rentry](https://rentry.co/kyojuro-rengoku) ‎ ‎‎  ‎‎ ‎‎ [strawpage](https://kyojurodraws.straw.page/) ‎ ‎‎  ‎‎ ‎‎ [atabook](https://kyostro.atabook.org/)
+
+  <img src="https://i.imgur.com/htt6Zs3.jpeg" width="230" height="50" /> <img src="https://i.imgur.com/y48lmxy.jpeg" width="230" height="50" /> <img src="https://i.imgur.com/0PMCQlP.jpeg" width="210" height="50" /> <img src="https://i.imgur.com/VVQgox2.jpegf" width="230" height="50" />
