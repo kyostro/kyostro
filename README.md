@@ -5,11 +5,7 @@
  <p align="center">
 <p align="center"> 
 
-<a href="https://x.com/ffa_500/status/1449130459057721346">
-<img src="https://i.imgur.com/B3wg7nq.gif" />
+<img src="https://i.imgur.com/UrdIaSb.gif" width="300" height="300" />
 <p align="center"> 
-$\textsf{\color{#bc5f4c}{i like kyojuro rengoku}}$
 
   ##### ‎‎[rentry](https://rentry.co/kyojuro-rengoku) ‎ ‎‎  ‎‎ ‎‎ [strawpage](https://kyojurodraws.straw.page/) ‎ ‎‎  ‎‎ ‎‎ [atabook](https://kyostro.atabook.org/)
-
-  <img src="https://i.imgur.com/htt6Zs3.jpeg" width="230" height="50" /> <img src="https://i.imgur.com/0PMCQlP.jpeg" width="210" height="60" /> <img src="https://i.imgur.com/VVQgox2.jpeg" width="240" height="50" />
