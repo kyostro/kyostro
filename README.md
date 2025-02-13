@@ -5,7 +5,7 @@
  <p align="center">
 <p align="center"> 
 
-<img src="https://i.imgur.com/oOsgl1S.gif" width="200" height="200"  />
+<img src="https://i.imgur.com/XPPH8Sk.png"   />
 <p align="center"> 
 
   ##### ‎‎[rentry](https://rentry.co/kyojuro-rengoku) ‎ ‎‎  ‎‎ ‎‎ [strawpage](https://kyojurodraws.straw.page/) ‎ ‎‎  ‎‎ ‎‎ [atabook](https://kyostro.atabook.org/)
