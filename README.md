@@ -6,9 +6,9 @@
 <p align="center"> 
 <p align="center">
 <a href="https://rentry.co/kyojuro-rengoku"> 
-<img src="https://i.imgur.com/dhklAcr.png" width="800" height="350"  />
+<img src="https://i.imgur.com/dhklAcr.png" />
 <a href="https://kyostro.atabook.org/">
-<img src="https://files.catbox.moe/mcazzl.png" width="800" height="350"/>
+<img src="https://files.catbox.moe/mcazzl.png" />
   <a href="https://kyojurodraws.straw.page/">
-<img src="https://i.imgur.com/xsKVb8z.png" width="800" height="350" />
+<img src="https://i.imgur.com/xsKVb8z.png" />
 <p align="center"> 
