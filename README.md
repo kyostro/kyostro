@@ -1,14 +1,17 @@
-<div align="center">
-<img src="https://komarev.com/ghpvc/?username=kyostro&label=>ᴗ<&color=be2820" />
-<div align="center">
+<p align="right">
+‎ 
+ ‎ 
+ ‎ 
+ 
+<img align="left" src="https://i.imgur.com/HKAc2g8.png">
 
- <p align="center">
-<p align="center"> 
-<p align="center">
-<a href="https://rentry.co/kyojuro-rengoku"> 
-<img src="https://i.imgur.com/dhklAcr.png" />
-<a href="https://kyostro.atabook.org/">
-<img src="https://files.catbox.moe/mcazzl.png" />
-  <a href="https://kyojurodraws.straw.page/">
-<img src="https://i.imgur.com/xsKVb8z.png" />
-<p align="center"> 
+ ‎‎ ‎‎ 
+<p>  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ </p>  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+
+
+</p>sucy ‎‎ or ‎‎ kyo ‎‎ •⩊• </p>
+i ‎‎ ‎‎ ♡ ‎‎ ‎‎ kyojuro
+
+##### [rentry](https://rentry.co/kyojuro-rengoku) ‎‎ ‎‎ [strawpage](https://kyojurodraws.straw.page/) ‎‎ ‎‎ [atabook](https://kyostro.atabook.org/)
+<div align="left">
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img src="https://komarev.com/ghpvc/?username=kyostro&label=>ᴗ<&color=be2820" />
