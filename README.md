@@ -3,7 +3,7 @@
  ‎ 
  ‎ 
 <a href="https://www.pixiv.net/en/artworks/76254682">  
-<img align="left" width="400" height="320" src="https://i.imgur.com/FO7NEzp.png">
+<img align="left" width="430" height="340" src="https://i.imgur.com/FO7NEzp.png">
 
  ‎‎ ‎‎ 
 <p>  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ </p>
