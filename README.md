@@ -8,7 +8,7 @@
 <p>  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ </p>
 
 
-</p>sucy ‎‎ or ‎‎ kyo ‎‎ 🏵️</p>
+</p>sucy ‎‎ or ‎‎ kyo ‎‎ 🏵️🌺</p>
 i ‎‎ ‎‎ ♡ ‎‎ ‎‎ kyojuro ‎‎ ‎‎ rengoku
 
 ##### [rentry](https://rentry.co/kyojuro-rengoku) ‎‎ ‎‎ [strawpage](https://kyojurodraws.straw.page/) ‎‎ ‎‎ [atabook](https://kyostro.atabook.org/)
