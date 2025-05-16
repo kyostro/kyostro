@@ -1,7 +1,7 @@
 <p align="center">
  ‎ ‎ ‎ ‎ ‎ ‎ ‎  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&center=true&&color=F79A25&width=435&lines=I+LOVE+KYOJURO+RENGOKU+.+.+.;SO+VERY+VERY+VERY+MUCH+!+!+!+!+!+!+!" alt="Typing SVG" /></a>
 <div align="center"> ‎  ‎ 
-<img align="center" src="https://i.imgur.com/FOk1nnG.gif">
+<img align="center" src="https://i.imgur.com/6dGGskz.gif">
 
 <p align="center"> 
 
