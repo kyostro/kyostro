@@ -12,7 +12,7 @@
  ‎ ‎  ‎ ‎‎  ‎ ‎‎i ‎‎ ‎‎ ♡ ‎‎ ‎‎ kyojuro   ‎‎ (❀❛ ֊ ❛„)♡
  ‎ ‎
 
-#####  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎‎ ‎‎ ‎[rentry directory](https://rentry.co/yomoya)
+#####  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎   ‎ ‎‎ ‎‎ ‎[rentry directory](https://rentry.co/yomoya)
 
 
 <div align="left">
