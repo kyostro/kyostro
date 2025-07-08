@@ -2,7 +2,7 @@
 ‎ 
  ‎ 
  ‎ 
-<img align="left" width="200" height="200"  src="https://i.imgur.com/hojk676.png">
+<img align="left" width="250" height="550"  src="https://i.imgur.com/hojk676.png">
 
  ‎‎ ‎‎ 
 <p>  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ </p>
