@@ -1,19 +1,13 @@
-<p align="right">
-‎ 
- ‎ 
- ‎ 
-<img align="left" width="250" height="550"  src="https://i.imgur.com/hojk676.png">
+<div align="center">
+<img src="https://64.media.tumblr.com/08f1157e4fb62352185b36afec10b822/67f379b253a55304-79/s75x75_c1/2dd301de7828b4fb0d8607ba40db757cc46bd729.gifv" width="40" height="40" />  <img src="https://komarev.com/ghpvc/?username=kyostro&label=>ᴗ<&color=d96303" /> <img src="https://64.media.tumblr.com/581809eba389f8d2ccce2c57b2eb9b8a/67f379b253a55304-15/s75x75_c1/f4206f7a9cad6744daa64d2f7c4a7afb3c4970be.gifv" width="40" height="40" />
+<div align="center">
 
- ‎‎ ‎‎ 
-<p>  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ </p>
+ <p align="center">
+<p align="center"> 
 
+<img src="https://i.imgur.com/4E2bNIV.gif" />
+<p align="center"> 
+$\textsf{\color{#e47014}{isfp-t 5w4}}$ ‎ ‎ ‎ ‎ ‎ ‎ ‎   $\textsf{\color{#d96303}{fem/neu terms}}$  ‎ ‎ ‎ ‎ ‎ ‎ ‎   $\textsf{\color{#b44414}{kyojuro yume}}$  ‎ ‎ ‎ 
 
- ‎ ‎ ‎ ‎</p> ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎sucy ‎‎ or ‎‎ kyo ‎‎ 🏵️🌺</p>
- ‎ ‎  ‎ ‎‎  ‎ ‎‎i ‎‎ ‎‎ ♡ ‎‎ ‎‎ kyojuro   ‎‎ (❀❛ ֊ ❛„) ♡
- ‎ ‎
-
-#####  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎[rentry directory](https://rentry.co/yomoya)
-
-
-<div align="left">
- ‎ ‎ ‎‎<img src="https://64.media.tumblr.com/08f1157e4fb62352185b36afec10b822/67f379b253a55304-79/s75x75_c1/2dd301de7828b4fb0d8607ba40db757cc46bd729.gifv" width="35" height="35" /> <img src="https://komarev.com/ghpvc/?username=kyostro&label=yume&color=404040" width="100" height="19"/> <img src="https://64.media.tumblr.com/581809eba389f8d2ccce2c57b2eb9b8a/67f379b253a55304-15/s75x75_c1/f4206f7a9cad6744daa64d2f7c4a7afb3c4970be.gifv" width="35" height="35" />
+  ##### ‎‎[main rentry](https://rentry.co/kyostro) ‎ ‎‎  ‎‎ ‎‎ [main strawpage](https://kyojurodraws.straw.page/) ‎ ‎‎  ‎‎ ‎‎ [atabook](https://kyostro.atabook.org/)
+  ##### ‎‎[gifted rentry ♡](https://rentry.co/kyojuro-rengoku) ‎ ‎‎  ‎‎ ‎‎ [gifted strawpage ♡](https://rengoku.straw.page/) ‎ ‎‎  ‎‎ ‎‎ [pronouns.cc](https://pronouns.cc/@kyojuro)
