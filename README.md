@@ -5,9 +5,10 @@
  <p align="center">
 <p align="center"> 
 
-<img src="https://i.imgur.com/4E2bNIV.gif" />
+
+[<img src="https://i.imgur.com/B2qUgut.gif" width="480" height="480" />](https://x.com/renmom0510/status/1945198741847245281)
 <p align="center"> 
-$\textsf{\color{#e47014}{ISFP 5w4}}$ ‎ ‎ ‎ ‎ ‎ ‎ ‎   $\textsf{\color{#d96303}{fem/neu terms}}$  ‎ ‎ ‎ ‎ ‎ ‎ ‎   $\textsf{\color{#b44414}{kyojuro yume}}$  ‎ ‎ ‎ 
+$\textsf{\color{#fcde9a}{ISFP 5w4}}$ ‎ ‎ ‎ ‎ ‎ ‎ ‎   $\textsf{\color{#fcb486}{fem/neu terms}}$  ‎ ‎ ‎ ‎ ‎ ‎ ‎   $\textsf{\color{#d8481a}{kyojuro yume}}$  ‎ ‎ ‎ 
 
   ##### ‎‎[main rentry](https://rentry.co/kyostro) ‎ ‎‎  ‎‎ ‎‎ [main strawpage](https://kyojurodraws.straw.page/) ‎ ‎‎  ‎‎ ‎‎ [atabook](https://kyostro.atabook.org/)
   ##### ‎‎[gifted rentry ♡](https://rentry.co/kyojuro-rengoku) ‎ ‎‎  ‎‎ ‎‎ [gifted strawpage ♡](https://rengoku.straw.page/) ‎ ‎‎  ‎‎ ‎‎ [pronouns.cc](https://pronouns.cc/@kyojuro)
