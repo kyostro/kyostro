@@ -6,7 +6,7 @@
 <p align="center"> 
 
 
-[<img src="https://i.imgur.com/B2qUgut.gif" width="480" height="480" />](https://x.com/renmom0510/status/1945198741847245281)
+[<img src="https://i.imgur.com/GzalvHv.png" width="260" height="350" />](https://x.com/t_a_n_jr/status/1949408836483469471)
 <p align="center"> 
 $\textsf{\color{#fcde9a}{ISFP 5w4}}$ ‎ ‎ ‎ ‎ ‎ ‎ ‎   $\textsf{\color{#fcb486}{fem/neu terms}}$  ‎ ‎ ‎ ‎ ‎ ‎ ‎   $\textsf{\color{#d8481a}{kyojuro yume}}$  ‎ ‎ ‎ 
 
