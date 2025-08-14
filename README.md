@@ -4,7 +4,7 @@
 
  <p align="center">
 <p align="center"> 
-
+$\textsf{\color{#d8481a}{I love Kyojuro♡♡♡♡♡♡}}$ 
 
 [<img src="https://i.imgur.com/GzalvHv.png" width="260" height="350" />](https://x.com/t_a_n_jr/status/1949408836483469471)
 <p align="center"> 
