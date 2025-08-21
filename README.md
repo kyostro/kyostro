@@ -4,9 +4,10 @@
 
  <p align="center">
 <p align="center"> 
-$\textsf{\color{#d8481a}{I love Kyojuro♡♡♡♡♡♡}}$ 
 
-[<img src="https://i.imgur.com/GzalvHv.png" width="260" height="350" />](https://x.com/t_a_n_jr/status/1949408836483469471)
+ $\textsf{\color{#d8481a}{I love Kyojuro♡♡♡♡♡♡}}$ 
+
+<img src="https://i.imgur.com/qWg58ss.png" width="450" height="650" />
 <p align="center"> 
 $\textsf{\color{#fcde9a}{ISFP 5w4}}$ ‎ ‎ ‎ ‎ ‎ ‎ ‎   $\textsf{\color{#fcb486}{fem/neu terms}}$  ‎ ‎ ‎ ‎ ‎ ‎ ‎   $\textsf{\color{#d8481a}{kyojuro yume}}$  ‎ ‎ ‎ 
 
