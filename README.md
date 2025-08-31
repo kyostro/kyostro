@@ -6,9 +6,9 @@
 <p align="center"> 
 
 
-<img src="https://i.imgur.com/WTe4dh5.png" width="450" height="550" />
+<img src="https://i.imgur.com/zitJxyd.png" width="450" height="550" />
 <p align="center"> 
-$\textsf{\color{#fcde9a}{ISFP 5w4}}$ ‎ ‎ ‎ ‎ ‎ ‎ ‎   $\textsf{\color{#fcb486}{fem/neu terms}}$  ‎ ‎ ‎ ‎ ‎ ‎ ‎   $\textsf{\color{#d8481a}{kyojuro yume}}$  ‎ ‎ ‎ 
+
 
   ##### ‎‎[main rentry](https://rentry.co/kyostro) ‎ ‎‎  ‎‎ ‎‎ [main strawpage](https://kyojurodraws.straw.page/) ‎ ‎‎  ‎‎ ‎‎ [atabook](https://kyostro.atabook.org/)
   ##### ‎‎[gifted rentry ♡](https://rentry.co/kyojuro-rengoku) ‎ ‎‎  ‎‎ ‎‎ [gifted strawpage ♡](https://rengoku.straw.page/) ‎ ‎‎  ‎‎ ‎‎ [pronouns.cc](https://pronouns.cc/@kyojuro)
