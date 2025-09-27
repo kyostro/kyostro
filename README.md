@@ -6,9 +6,9 @@
 <p align="center"> 
 
 
-<img src="https://i.imgur.com/os49nRu.jpeg" width="550" height="550" />
+<img src="https://i.imgur.com/CLCkeKY.png" width="400" height="550" />
 <p align="center"> 
 
 
-  ##### ‎‎[main rentry](https://rentry.co/kyostro) ‎ ‎‎  ‎‎ ‎‎ [main strawpage](https://kyojurodraws.straw.page/) ‎ ‎‎  ‎‎ ‎‎ [draw](https://kyojurocore.straw.page/) ‎ ‎‎  ‎‎ ‎‎ [atabook](https://kyostro.atabook.org/) 
+  ##### ‎‎[main rentry](https://rentry.co/kyostro) ‎ ‎‎  ‎‎ ‎‎ [main strawpage](https://kyojurodraws.straw.page/) ‎ ‎‎  ‎‎ ‎‎ [atabook](https://kyostro.atabook.org/) 
   ##### ‎‎[gifted rentry ♡](https://rentry.co/kyojuro-rengoku) ‎ ‎‎  ‎‎ ‎‎ [gifted strawpage ♡](https://rengoku.straw.page/) ‎ ‎‎  ‎‎ ‎‎ [pronouns.cc](https://pronouns.cc/@kyojuro)
