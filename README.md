@@ -6,8 +6,6 @@
 <p align="center"> 
 
 
-<img src="https://i.imgur.com/j3te1Cs.png" width= "250" height="250" />
-<p align="center"> 
 <img src="https://i.imgur.com/IoucTMW.png" width="550" height="550" /> 
 <p align="center"> 
 
