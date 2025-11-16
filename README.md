@@ -12,3 +12,10 @@
 
   ##### ‎‎[main rentry](https://rentry.co/kyostro) ‎ ‎‎  ‎‎ ‎‎ [main strawpage](https://kyojurodraws.straw.page/) ‎ ‎‎  ‎‎ ‎‎ [atabook](https://kyostro.atabook.org/) 
   ##### ‎‎[gifted rentry ♡](https://rentry.co/kyojuro-rengoku) ‎ ‎‎  ‎‎ ‎‎ [gifted strawpage ♡](https://rengoku.straw.page/) ‎ ‎‎  ‎‎ ‎‎ [pronouns.cc](https://pronouns.cc/@kyojuro)
+
+<img src="https://i.imgur.com/MGSbl2K.jpeg" width="600" height="200" />
+
+IM A COOL PONYTOWNER LOOK YAY 
+ <p align="center">  
+  <img src="https://i.imgur.com/KZAUi2b.png" width="650" height="650" />
+ 
