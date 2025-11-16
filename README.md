@@ -15,7 +15,7 @@
 
 <img src="https://64.media.tumblr.com/a43082f9cbebc34f87b523a11838c609/a0a2f9972f66101e-79/s2048x3072/2c1db2b3a937244ccea2bdf5b78363cecdc568c6.pnj" width="650" height="700" />
 
-IM A COOL PONYTOWNER LOOK YAY jumps and kicks my heels in the air gleefully <img src="https://64.media.tumblr.com/1a21509358961b31aa4583e3948bfd91/4653d66cb3326578-c1/s75x75_c1/8e8c584c58113761844ade087410792f3f90e488.gifv" />
+$\textsf{\color{#d8481a}{IM A COOL PONYTOWNER LOOK YAY jumps and kicks my heels in the air gleefully}}$ ‎ ‎  <img src="https://64.media.tumblr.com/1a21509358961b31aa4583e3948bfd91/4653d66cb3326578-c1/s75x75_c1/8e8c584c58113761844ade087410792f3f90e488.gifv" />
  <p align="center">  
   <img src="https://i.imgur.com/KZAUi2b.png" width="650" height="650" />
  
