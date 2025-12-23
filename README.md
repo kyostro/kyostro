@@ -13,9 +13,7 @@
 <p align="center"> 
 
 
-  ##### ‎‎[main rentry](https://rentry.co/kyostro) ‎ ‎‎  ‎‎ ‎‎ [main strawpage](https://kyojurodraws.straw.page/) ‎ ‎‎  ‎‎ ‎‎ [atabook](https://kyostro.atabook.org/) 
-  ##### ‎‎[gifted rentry ♡](https://rentry.co/kyojuro-rengoku) ‎ ‎‎  ‎‎ ‎‎ [gifted strawpage ♡](https://rengoku.straw.page/) ‎ ‎‎  ‎‎ ‎‎ [pronouns.cc](https://pronouns.cc/@kyojuro)
-
+  ##### ‎‎[info](https://rentry.co/sucy-)
 <img src="https://64.media.tumblr.com/8a4c4aa7d59a9902cf7af99d25c30741/6358e14772faff9b-da/s2048x3072/5a757bd89f4480d7f4f293be5c31ec807e411db4.pnj" width="650" height="700" />
 
 $\textsf{\color{#bb92a6}{certified kewl ponytowner}}$
