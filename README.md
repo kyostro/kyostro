@@ -9,7 +9,7 @@
 <p align="center"> 
 
 
-<img src="https://i.imgur.com/JESu6Iz.png" width="350" height="350" />  
+<img src="https://i.imgur.com/Jztn4zc.png" width="450" height="450" />  
 <p align="center"> 
 
 
