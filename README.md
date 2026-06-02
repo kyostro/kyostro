@@ -18,4 +18,5 @@
   ![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=kyostro)
 
 
- 
+
+ [![Screenshot-2026-06-01-204309.png](https://i.postimg.cc/L8Dp7b7N/Screenshot-2026-06-01-204309.png)](https://postimg.cc/BjjkPMJK)
