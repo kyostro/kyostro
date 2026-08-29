@@ -8,7 +8,7 @@
 <p align="center"> 
 
 
-<img width="330" height="220" alt="kim" src="https://files.catbox.moe/gld617.jpg" />
+<img width="330" height="200" alt="kim" src="https://files.catbox.moe/gld617.jpg" />
 <p align="center"> 
 
 
