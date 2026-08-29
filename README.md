@@ -8,7 +8,7 @@
 <p align="center"> 
 
 
-<img src="https://i.imgur.com/Jztn4zc.png" width="350" height="300" />  
+<img width="130" height="190" alt="Ezra_Idle_Animation" src="https://github.com/user-attachments/assets/4e2172ff-9fb7-4439-afca-ce16fa20ba61" />
 <p align="center"> 
 
 
