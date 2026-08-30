@@ -13,7 +13,7 @@
 
 
   ##### ‎‎[info](https://rentry.co/bamboohattedkims) ‎ ‎‎  ‎‎ ‎‎ [atabook](https://kyostro.atabook.org/) ‎ ‎‎  ‎‎ ‎‎ [strawpage](https://sucys.straw.page)
-  $\textsf{\color{#999999}{certified kewl ponytowner @ponytowners}}$ <img src="https://i.imgur.com/5YTDt3g.gif" width="25" height="25" />
+  $\textsf{\color{#999999}{certified cool ponytowner @ponytowners}}$ <img src="https://i.imgur.com/5YTDt3g.gif" width="25" height="25" />
 
   ![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=kyostro)
 
