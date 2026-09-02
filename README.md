@@ -3,12 +3,12 @@
 <div align="center">
 <img src="https://komarev.com/ghpvc/?username=kyostro&label=spellcaster&color=999999" /> 
 <div align="center">
-
+by anon <img src="https://files.catbox.moe/gi3hk0.jpg" width="40" height="40" /> 
  <p align="center">
 <p align="center"> 
 
 
-<img width="330" height="200" alt="kim" src="https://files.catbox.moe/gld617.jpg" />
+ <img width="400" height="320" alt="kim" src="https://files.catbox.moe/06rmty.png" />
 <p align="center"> 
 
 
