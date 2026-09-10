@@ -18,8 +18,11 @@ by anon <img src="https://files.catbox.moe/gi3hk0.jpg" width="40" height="40" />
 
   $\textsf{\color{#999999}{certified cool ponytowner @ponytowners}}$ <img src="https://i.imgur.com/5YTDt3g.gif" width="25" height="25" />
   
-  $\textsf{\color{#999999}{ponytown's bamboo hatted kim @pt-ship-nominations}}$ <img src="https://i.imgur.com/5YTDt3g.gif" width="25" height="25" />
+  $\textsf{\color{#999999}{ponytown's bamboo hatted kim: @pt-ship-nominations}}$ <img src="https://i.imgur.com/5YTDt3g.gif" width="25" height="25" />
 
+   $\textsf{\color{#999999}{ponytown's sucy manbavaran: @pt-hall-of-media  @pt-icon}}$ <img src="https://i.imgur.com/5YTDt3g.gif" width="25" height="25" />
+
+   
 </details>
 
   [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=5x4d706065ojzvlgyjwa5n0m6&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=5x4d706065ojzvlgyjwa5n0m6&redirect=true)
