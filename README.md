@@ -38,7 +38,7 @@ my style changes often, i dont really have a signature style
 
   $\textsf{\color{#999999}{certified cool ponytowner @ponytowners}}$ <img src="https://i.imgur.com/5YTDt3g.gif" width="25" height="25" />
   
-  $\textsf{\color{#999999}{ponytown's bamboo hatted kim: @pt-ship-nominations}}$ <img src="https://i.imgur.com/5YTDt3g.gif" width="25" height="25" />
+  $\textsf{\color{#999999}{ponytown's bamboo hatted kim: @pt-ship-nominations  @PT-FANtastic-Hall}}$ <img src="https://i.imgur.com/5YTDt3g.gif" width="25" height="25" />
 
    $\textsf{\color{#999999}{ponytown's sucy manbavaran: @pt-hall-of-media  @pt-icon}}$ <img src="https://i.imgur.com/5YTDt3g.gif" width="25" height="25" />
 
