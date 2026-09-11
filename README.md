@@ -27,7 +27,9 @@ im very approachable unless youre trying to be weird because ill just end up hid
 and im always open to having anyone cuddle next to me or hide behind me whenever 🫶🏽  
 
 if we share interests ill follow your github, i like having an   
-even amount of followers and followings for no reason
+even amount of followers and followings for no reason  
+
+my style changes often, i dont really have a signature style
 
 </details>
 
