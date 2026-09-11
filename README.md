@@ -13,8 +13,23 @@ by anon <img src="https://files.catbox.moe/gi3hk0.jpg" width="40" height="40" />
 
  
   ##### ‎‎[info](https://rentry.co/bamboohattedkims) ‎ ‎‎  ‎‎ ‎‎ [新book](https://kyostro.atabook.org/) ‎ ‎‎  ‎‎ ‎‎ [strawpage](https://sucys.straw.page)
+ <details><summary>brief intro</summary>
+hello, quick intro for people who dont feel like reading a whole rentry
+  
+  i go by the names sucy or kim. im 18 years old and i use she/ae pronouns.
 
- <details><summary>my titles</summary>
+i have no preferences but i like when people use ae/aer more, im fine with they/them.  
+
+i dont have much info to offer about myself because i find that im a pretty boring   
+person and cannot keep a conversation going for the life of me ... 🫩   
+
+im very approachable unless youre trying to be weird because ill just end up hiding you,  
+and im always open to having anyone cuddling next me or hiding behind me whenever 🫶🏽
+
+</details>
+
+
+ <details><summary>nominations</summary>
 
   $\textsf{\color{#999999}{certified cool ponytowner @ponytowners}}$ <img src="https://i.imgur.com/5YTDt3g.gif" width="25" height="25" />
   
