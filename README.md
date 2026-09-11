@@ -24,7 +24,10 @@ i dont have much info to offer about myself because i find that im a pretty bori
 person and cannot keep a conversation going for the life of me ... 🫩   
 
 im very approachable unless youre trying to be weird because ill just end up hiding you,  
-and im always open to having anyone cuddling next me or hiding behind me whenever 🫶🏽
+and im always open to having anyone cuddle next to me or hide behind me whenever 🫶🏽  
+
+if we share interests ill follow your github, i like having an   
+even amount of followers and followings for no reason
 
 </details>
 
