@@ -26,8 +26,8 @@ person and cannot keep a conversation going for the life of me ... 🫩
 im very approachable unless youre trying to be weird because ill just end up hiding you,  
 and im always open to having anyone cuddle next to me or hide behind me whenever 🫶🏽  
 
-if we share interests ill follow your github, i like having an   
-even amount of followers and followings for no reason  
+if we share interests ill follow your github (or if i drew in your strawpage)  
+i like having an even amount of followers and followings for no reason  
 
 my style changes often, i dont really have a signature style
 
