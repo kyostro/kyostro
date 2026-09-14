@@ -28,6 +28,7 @@ and im always open to having anyone cuddle next to me or hide behind me whenever
 
 if we share interests ill follow your github (or if i drew in your strawpage)  
 i like having an even amount of followers and followings for no reason  
+i do not spam follow people on this github account
 
 my style changes often, i dont really have a signature style
 
