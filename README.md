@@ -12,9 +12,9 @@ by anon <img src="https://files.catbox.moe/gi3hk0.jpg" width="40" height="40" />
 <p align="center"> 
 
  
-  ##### ‎‎[info](https://rentry.co/bamboohattedkims) ‎ ‎‎  ‎‎ ‎‎ [新book](https://kyostro.atabook.org/) ‎ ‎‎  ‎‎ ‎‎ [strawpage](https://sucys.straw.page)
+  ##### ‎‎[info](https://fluffle.cc/sucy) ‎ ‎‎  ‎‎ ‎‎ [新book](https://kyostro.atabook.org/) ‎ ‎‎  ‎‎ ‎‎ [strawpage](https://sucys.straw.page)
  <details><summary>brief intro</summary>
-hello, quick intro for people who dont feel like reading a whole rentry
+hello, quick intro for people who dont feel like reading a whole fluffle
   
   i go by the names sucy or kim. im 18 years old and i use she/ae pronouns.
 
